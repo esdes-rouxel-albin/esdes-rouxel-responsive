@@ -1,1 +1,0 @@
-# esdes-rouxel-responsive
